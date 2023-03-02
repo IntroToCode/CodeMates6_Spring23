@@ -1,7 +1,7 @@
 # Replace with recipe name
 
 ## Servings: 
-
+4 servings
 ## Time to prepare: 
 Total time: 15 minutes
 
