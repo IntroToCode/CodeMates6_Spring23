@@ -20,7 +20,10 @@ WRAPS
 - 1 cup Fritos, crushed
 
 ## Equipment needed:
-
+-Mixing bowl
+-Cutting board
+-Measuring cups and spoons
+-Knife
 
 ## Steps for preparation:
 
