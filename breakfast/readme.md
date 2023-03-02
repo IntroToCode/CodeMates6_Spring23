@@ -18,7 +18,12 @@ Total time: 20 minutes
 
 
 ## Equipment needed:
-
+-Sieve
+-Mixing bowl
+-Spatula
+-Whisk
+-Griddle or pan
+-Measuring cups/spoons
 
 ## Steps for preparation:
 
