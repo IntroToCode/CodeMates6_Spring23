@@ -1,7 +1,7 @@
 # Replace with recipe name
 
 ## Servings: 
-
+8 Servings
 ## Time to prepare: 
 Prep time: 5 minutes
 Cook time: 15 minutes
