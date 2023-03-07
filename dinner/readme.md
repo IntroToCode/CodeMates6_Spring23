@@ -1,4 +1,4 @@
-# Crunchy Southweestern Chicken Wrap
+# Crunchy Southwestern Chicken Wrap
 
 ## Servings: 
 4 servings
